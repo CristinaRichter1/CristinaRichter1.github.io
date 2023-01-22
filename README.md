@@ -1,1 +1,1 @@
-# CristinaRichter1.lucrarelicenta.github.io
+# CristinaRichter1.github.io
